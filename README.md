@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jerryqiu2008
+- 👋 Hi, I’m Ammonia!
 - 👀 I’m interested in minecraft coding!
 - 🌱 I’m currently learning modding and datapacks
 - 💞️ I’m looking to collaborate on minecraft!!!!!
